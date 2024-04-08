@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Hi there 🌱
+
+Always interested in sweet UX creating solutions for even more interesting problems🤔 
+I'm here for all the moving bits included in the way to get there ⚙️
+
+A big piot in my heart of artistic projects of all kinds 🎨
