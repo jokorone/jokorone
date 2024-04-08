@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello there 🌱
 
 <!--
 **jokorone/jokorone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,8 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
-Hi there 🌱
 
 Always interested in sweet UX creating solutions for even more interesting problems🤔 
 I'm here for all the moving bits included in the way to get there ⚙️
