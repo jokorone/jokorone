@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Always interested in sweet UX creating solutions for even more interesting problems🤔 
+Always interested in sweet UX creating solutions for even more interesting problems 🤔 
 I'm here for all the moving bits included in the way to get there ⚙️
 
-A big piot in my heart of artistic projects of all kinds 🎨
+A big spot in my heart for artistic projects of all kinds 🎨
